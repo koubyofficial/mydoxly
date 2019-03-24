@@ -1,0 +1,2 @@
+# mydoxly
+for my blogger
